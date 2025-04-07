@@ -4,7 +4,7 @@ Kegelapan tidak di lahirkan "Melainkan di ciptakan" rantai besi akan terus membe
 
 Pikiran gelap yang terus mengahantui berbisik "bunuhlah atau dibunuh" aroma bangkai tercium sangat harum bersemayam di dalam diri, murka yang begitu mendalam tersimpan di hati yang sudah mati, didikan yang sangat keras kelam dan penuh tragis, tusukan pisau tiada henti untuk menembus tubuh, kata TUHAN pun tidak dapat menolong hancurnya tubuh ini, harapan yang terus berdatangan mencekik leher yang sudah membiru.
 
-Menangis pilu menangiskan harapan berharap cahaya datang menolong, badan yang kurus bagai tengkorang hidup penuh kelaparan menangis saat membayangkan makan di tengah malam, perkataan pisau yang terus merobek organ tubuh ini sehancur leburnya, "ketidak adilan TERJADI PADA ORANG PERTAMA"
+Menangis pilu menangiskan harapan berharap cahaya datang menolong, badan yang kurus bagai tengkorak hidup penuh kelaparan menangis saat membayangkan makan di tengah malam, perkataan pisau yang terus merobek organ tubuh ini sehancur leburnya, "ketidak adilan TERJADI PADA ORANG PERTAMA"
 
 Demi Jasad yang tergantung kaku tak bernyawa
 Selembar kertas belumuran darah 
